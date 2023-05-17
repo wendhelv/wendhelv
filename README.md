@@ -2,7 +2,7 @@
 
 
 
-- 🔭 hoje eu estou trabalhando como suporte para prodata.
+- 🔭 Estou aberto a oportunidades que possam se alinhar aos meus objetivos de carreira.
 - 🌱 estou cursando Eng de Soft.
 - ⚡ eu amo estudar jogar e estar com minha familia.
 
